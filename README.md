@@ -6,4 +6,4 @@ Most of what I do these days is game development on the Roblox platform, previou
 
 My ultimate goal is to just create something that can make someone else happy, if I've done that then I'll consider myself a success as a developer.
 
-You can contact me on Discord under the same username as I use everywhere else, just without caps. (yunoguy123)
+You can contact me on Discord under the same username as I use everywhere else, just without caps. (yunoguy123, no friend code cause of the whole Discord removing friend codes thing)
